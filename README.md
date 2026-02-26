@@ -1,1 +1,0 @@
-# Examen-1-Sistemas-Operativos-2026
